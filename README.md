@@ -1,0 +1,1 @@
+The recipe take about 10 minutes of maxing the batter and about 55 minutes to bake. So in total it takes about 1 hour and 10 minutes. It is very moist, soft and very healthy. It is a good use of overripe bananas. If you want you can reduce the sugar to make it even healthier.
